@@ -1,0 +1,4 @@
+- Hi, I’m @adhirajchhoda  
+- I’m interested in quantitative finance, statistics, and building AI-powered tools with real-world impact  
+- Looking to collaborate on finance research, equity ranking models, and algorithmic trading projects  
+- chhodaadhiraj@gmail.com
